@@ -1,2 +1,2 @@
 # MiddleSchool
-Store my old website
+To store my old website
