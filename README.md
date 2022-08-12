@@ -1,2 +1,2 @@
 # MiddleSchool
-To store my old website
+Enjoy yourself. I'm going to sleep.
